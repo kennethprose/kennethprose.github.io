@@ -1,0 +1,1 @@
+Website located at: https://easymcserver.tech
